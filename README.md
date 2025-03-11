@@ -61,6 +61,6 @@ Once you have installed the **Aviator Predictor app**, you can start using its f
 
 ## Join Our Community
 
-You can follow us on our instagram account with the username:@
+You can follow us on our instagram account with the username:@aviatorpredictpro
 
 Thank you for your interest in the **Aviator Predictor**! Happy betting!
